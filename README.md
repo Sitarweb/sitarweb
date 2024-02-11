@@ -1,4 +1,5 @@
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?color=%2336BCF7&lines=Hi+everyone,+I'm+Simon)](https://git.io/typing-svg)
+
 :rocket: **If we have not yet met, LET'S GET ACQUAINTED**:exclamation:
 
 ##### Feel myself in the role of “Tony” Stark! I love numbers and letters, their meanings. New skill is like a breath of fresh air. Indispensable member of your team! Hire me :round_pushpin:
