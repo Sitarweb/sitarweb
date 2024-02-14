@@ -2,7 +2,7 @@
 
 :rocket: **If we have not yet met, LET'S GET ACQUAINTED**:exclamation:
 
-##### Feel myself in the role of “Tony” Stark! I love numbers and letters, their meanings. New skill is like a breath of fresh air. Indispensable member of your team! Hire me :round_pushpin:
+#### Feel myself in the role of “Tony” Stark! I love numbers and letters, their meanings. New skill is like a breath of fresh air. Indispensable member of your team! Hire me :round_pushpin:
 
 :dart:**Technologies**
 <p align="center">
